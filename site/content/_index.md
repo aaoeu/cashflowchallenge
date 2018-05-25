@@ -3,12 +3,8 @@ title: The Cash Flow Challenge
 subtitle: '100 Games, 100 Properties, 1 Crazy New Life'
 image: /img/products-grid2.jpg
 blurb:
-  heading: Why Kaldi?
-  text: >-
-    Kaldi is the coffee store for everyone who believes that great coffee
-    shouldn't just taste good, it should do good too. We source all of our beans
-    directly from small scale sustainable farmers and make sure part of the
-    profits are reinvested in their communities.
+  heading: Why is there all this stuff about coffee???
+  text: It's the default site. I promise to fix it soon.
 intro:
   heading: What we offer
   text: >-
