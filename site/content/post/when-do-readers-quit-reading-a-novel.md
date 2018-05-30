@@ -1,6 +1,6 @@
 ---
-title: When do readers quit reading a novel?
-date: 2018-05-30T00:00:00-04:00
+title: When do readers quit reading a novel? (With Images)
+date: 2018-05-30T04:00:00.000Z
 description: Thought I had this? Hello?
 image: /img/parrot-2458853_1280.jpg
 ---
