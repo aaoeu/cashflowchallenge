@@ -68,6 +68,8 @@ Meanwhile, other readers can remember this sense of obligation, but they've sinc
 
 Comments like this fill me with relief. You might think an author would relish the power to hold captive readers in thrall, but actually, the mere thought is terrifying. Novels are freaking long. My book, inflicting hours and hours of torture? Perish the thought.
 
+![](/img/parrot-2796743_1280.jpg)
+
 \    Fly away, happy reader! Be free!!
 
 Still can't bear to quit? How about this simple but effective hack to get that book truly "finished" ...
@@ -125,6 +127,8 @@ Other inaccuracies are more ... subtle ...
 Priceless.
 
 That's how I feel about "guess the password" scenes. In fact, my own empath detective, Mark, even complains about those scenes in Murder Feels Awful (before eventually guessing a password...)
+
+![](/img/food-2940558_1280.jpg)
 
 \    I'm still thinking about those cupcakes.
 
@@ -191,6 +195,8 @@ Reading all your thoughts on this has been so delightful and mind-expanding ... 
 But of all these most excellent replies, I've got to close with this:
 
 \    But often I’ve sat through a movie not because I wanted to see it, but because someone else did. Handing my Lady-Love extra Kleenex is worth it. Likewise sitting through the tenth viewing of Veggie Tales that day works when certain granddaughters want to show me what they love. I now have 4....and expect to be doing it for sometime to come.
+
+![](/img/grey-crowned-crane-540657_1280.jpg)
 
 \    You know it's love when they're making a heart. (Why all the birds today, you ask? No idea...)
 
